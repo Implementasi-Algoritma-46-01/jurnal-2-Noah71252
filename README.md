@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Astrid Fayyaza Danishara
 
-NIM : 
+NIM : 607062400049
 
 ## Instruksi
 
